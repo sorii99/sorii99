@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: **facuzanata@hotmail.com**
 
-- ⚡ Fun fact: **I love learning new things and proving my self with challenges!**
+- ⚡ Fun fact: **I love learning new things and proving myself with challenges!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
